@@ -1,2 +1,2 @@
 # qwerty12321
-лох /github
+прыет /github
